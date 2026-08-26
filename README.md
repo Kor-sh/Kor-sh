@@ -1,9 +1,2 @@
-676767676767676
-767
-67
-67
-67
-67
-67
-6
-76
+im cute 
+<img width="480" height="480" alt="CatMemeGIF" src="https://github.com/user-attachments/assets/4a6097fb-20db-44ff-b15f-8939be66c0db" />
